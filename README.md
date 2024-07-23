@@ -5,3 +5,5 @@ she has farady something academy,,so i will be one of the best programmers and I
 so fuck you and anybody like you(bad people).hello my idol GEORGE HOTZ,man you changed my life hope to meet you someday, I have 3 
 sisters I can give one or all of them, it's how you like Hotz!!!They are all yours ,
 george am joking
+So now i can clone something,finnaly
+and here is the something
